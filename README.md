@@ -48,7 +48,7 @@ Stay updated and connect with us on social media:
 Have questions or need support? We're here to help!
 
 **Email:** [helpme@averagejoeshosting.com](mailto:helpme@averagejoeshosting.com)  
-**Phone:** (563) 500-2656
+**Phone:** (888) 563-1216
 
 ---
 
